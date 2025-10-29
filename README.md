@@ -5,3 +5,6 @@ The Creamy Spiced Coleslaw recipe was originally published by [Wilemon] on [allr
 You can find the original recipe here: [Creamy Spiced Coleslaw](https://www.allrecipes.com/recipe/64116/creamy-spiced-coleslaw/)
 
 The Mediterranean Sheet Pan Chicken Dinner was adapted from the recipe: [Mediterranean Sheet Pan Dinner](https://www.allrecipes.com/recipe/268999/mediterranean-chicken-sheet-pan-dinner/)
+
+The Peanut Butter Protein Bars recipe was originally published by [Yolanda Gutierrez] on [allrecipes.com]
+You can find the original recipe here: [Peanut Butter Protein bars](https://www.allrecipes.com/chocolate-peanut-butter-protein-bars-recipe-8421618)
